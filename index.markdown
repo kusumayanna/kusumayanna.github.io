@@ -34,5 +34,5 @@ Worked as Research assistant in the area of "DEEP LEARNING".
 - *Woxsen University*
   - Bachelor of Technology - BTech, Data Science and AI (2021 - 2025)
 
-- *Silver oaks international school* 
-- *Narayana junior college* 
+- *Silver oaks international school* (2009-2019)
+- *Narayana junior college*  (2019-2021)
