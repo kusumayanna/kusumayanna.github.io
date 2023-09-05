@@ -18,7 +18,7 @@ Kusuma Yanna is currently an undergraduate student focusing on a degree in data 
 
 *Class Representative*  
 Woxsen University  
-Aug 2022 - Present (1 year)
+Aug 2022 - Aug 2024 (2 years)
 
 *Research Assistant*  
 Woxsen University  
