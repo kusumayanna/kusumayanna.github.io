@@ -10,7 +10,7 @@ title: Kusuma Yanna's Resume
 📞 Phone: +919701181000  
 🔗 LinkedIn: [linkedin.com/in/kusuma-yanna-6070a5222](https://www.linkedin.com/in/kusuma-yanna-6070a5222)
 
-## Summary
+## ABOUT ME
 
 As a dedicated and enthusiastic learner, I am committed to making significant contributions to the field of technology. My strong problem-solving skills, leadership abilities, and effective communication set me apart. I firmly believe that merging practical experience with theoretical knowledge creates a strong foundation for ongoing growth. With this perspective, I am eager to explore opportunities for excellence and positive impact in the world of technology. My active involvement in various hackathons, such as Google Code Jam and Hack Cloud by Google, demonstrates my passion for acquiring new knowledge, honing valuable skills, and contributing to societal advancement.
 
